@@ -38,7 +38,7 @@ What You'll Find in My Repositories:
 
 👤📘📱 Facebook [NomanInnovates](https://www.facebook.com/nomaninnovates)
 
-code 👔 :  [NomanInnovates](https://twitter.com/NomanInnovates)
+code 👔 :  [NomanInnovates](https://www.linkedin.com/in/nomaninnovates/)
 
 
 Let's embark on this coding odyssey together! Whether you're a fellow developer, a potential collaborator, or just someone who loves innovative tech, let's connect and make the digital world a more exciting place, one "NomanInnovates" project at a time. 🚀👨‍💻
